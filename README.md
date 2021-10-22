@@ -9,16 +9,6 @@ _cyberpunk will blow your mind_
 
 **Lets go**
 
--page one
+* Essica
 
--page two 
-
--page three
-
-1.) one
-
-2.)two 
-
-3.) Three
-
-[^1]j
+😧 ⚓ 😙
